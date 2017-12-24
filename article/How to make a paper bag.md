@@ -20,7 +20,7 @@ Paper bag is a new fad these days. The use of paper bags are advantageous as the
 
 <br>
 
-Owning a paper bag is more of a style statement. You can use them for shopping bags or it can used as gifting bags also. Using a paper bags will be a lot of help to environment. You can buy a paper bag at very low cost but hand made bags will have special place in your heart.
+Owning a paper bag is more of a style statement. You can use them as shopping bags or it can used as gifting bags also. Using a paper bags will be a lot of help to environment. You can buy a paper bag at very low cost but hand made bags will have special place in your heart.
 
 ## <a name="require"></a>Material Required
 
